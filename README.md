@@ -1,1 +1,1 @@
-me chamo Elen,tenho 17 anos, estou cursando o 1°ano do ensino médio.Pretendo fazer uma faculdade de enfermagem, atualmente trabalho com cuidados de pessoa acidentada, oque me fez ter mais vontade de cursar essa faculdade.
+ Eu me chamo Elen,tenho 17 anos, estou cursando o 1°ano do ensino médio.Pretendo fazer uma faculdade de enfermagem, atualmente trabalho com cuidados de pessoa acidentada, oque me fez ter mais vontade de cursar essa faculdade.
